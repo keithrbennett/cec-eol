@@ -44,4 +44,5 @@ that apply to you.
 
 ### Contact Us
 
-If you have any questions or suggestions, email Rick Hahn at media@chiangmaiexpatsclub.com.
+If you have any questions or suggestions, email Rick Hahn at 
+[media@chiangmaiexpatsclub.com](mailto:media@chiangmaiexpatsclub.com).
