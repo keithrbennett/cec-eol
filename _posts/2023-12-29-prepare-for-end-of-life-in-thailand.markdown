@@ -15,9 +15,9 @@ categories:
 * Location:
 * Cost:
 
-[To see the Course Outline, click here.](./resources/cec-eol-course-outline.pdf)
+[To see the Course Outline, click here.](/resources/cec-eol-course-outline.pdf)
 
-[To see the Flyer, click here.](./resources/cec-eol-flyer.pdf)
+[To see the Flyer, click here.](/resources/cec-eol-flyer.pdf)
 
 ### Why Plan, Why Now?
 
