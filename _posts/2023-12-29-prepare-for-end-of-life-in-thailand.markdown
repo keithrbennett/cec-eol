@@ -14,9 +14,9 @@ categories:
 * Location:
 * Cost:
 
-[To see the Course Outline, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-course-outline.pdf)
+[To see the course outline, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-course-outline.pdf)
 
-[To see the Flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
+[To see the flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
 
 ### Why Plan, Why Now?
 
