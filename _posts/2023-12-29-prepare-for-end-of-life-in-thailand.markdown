@@ -5,7 +5,6 @@ date:   2023-12-29 15:36:10 +0700
 categories: 
 ---
 
-# Prepare for End of Life in Thailand
 ### Chiang Mai Expats Club
 
 ### Key Information
@@ -26,16 +25,16 @@ We have put together a top 10 list of those reasons take a look and see if any o
 apply to you, and then check out our suggestions by clicking on the ones below
 that apply to you.
 
-* [1) It's not something I want to think about.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-01.md)
-* [2) I don't know where to start.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-02.md)
-* [3) I already have a will, and another country.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-03.md)
-* [4) It doesn't matter I'll be gone.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-04.md)
-* [5) I'll get around to it later.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-05.md)
-* [6) It's expensive.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-06.md)
-* [7) I don't own enough that it would matter.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-07.md)
-* [8) It's complicated and I don't know who I can trust.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-08.md)
-* [9) I live by myself and don't have anyone to leave possessions to.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-09.md)
-* [10) I'm going to live forever.](/_markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-10.md)
+* [1) It's not something I want to think about.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-01.md)
+* [2) I don't know where to start.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-02.md)
+* [3) I already have a will, and another country.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-03.md)
+* [4) It doesn't matter I'll be gone.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-04.md)
+* [5) I'll get around to it later.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-05.md)
+* [6) It's expensive.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-06.md)
+* [7) I don't own enough that it would matter.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-07.md)
+* [8) It's complicated and I don't know who I can trust.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-08.md)
+* [9) I live by myself and don't have anyone to leave possessions to.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-09.md)
+* [10) I'm going to live forever.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-10.md)
 
 ### Buy Tickets
 
