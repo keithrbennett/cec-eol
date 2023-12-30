@@ -18,6 +18,8 @@ categories:
 
 [To see the flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
 
+[To **buy tickets**, click here.](https://buytickets.at/chaingmaiexpatsclub/1101241)
+
 ### Why Plan, Why Now?
 
 There are several reasons why people have not created their own comprehensive plan.
@@ -35,12 +37,6 @@ that apply to you.
 * [8) It's complicated and I don't know who I can trust.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-08.html)
 * [9) I live by myself and don't have anyone to leave possessions to.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-09.html)
 * [10) I'm going to live forever.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-10.html)
-
-### Buy Tickets
-
-[Click here to buy the complete session package (4 sessions).]()
-
-[Click here to buy a single session.]()
 
 ### Contact Us
 
