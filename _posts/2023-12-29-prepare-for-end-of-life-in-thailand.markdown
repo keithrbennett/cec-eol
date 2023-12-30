@@ -11,10 +11,10 @@ for your loved ones in the manner you desire.
 
 ### Key Information
 
-* Dates:
-* Time:
-* Location:
-* Cost:
+* Dates: Tuesdays, February 6, 13, 20, 27, 2024
+* Time: 10:30 AM to Noon
+* Location: [Payap Lifelong Learning](https://maps.app.goo.gl/iwbrUivFd7bLZg9H6)
+* Cost: 350B/session, 1000B for all 4 sessions (a 400B discount)
 
 #### [To **buy tickets**, click here.](https://buytickets.at/chaingmaiexpatsclub/1101241)
 
