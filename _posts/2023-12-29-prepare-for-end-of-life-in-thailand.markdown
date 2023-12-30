@@ -14,11 +14,11 @@ categories:
 * Location:
 * Cost:
 
+[To **buy tickets**, click here.](https://buytickets.at/chaingmaiexpatsclub/1101241)
+
 [To see the course outline, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-course-outline.pdf)
 
 [To see the flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
-
-[To **buy tickets**, click here.](https://buytickets.at/chaingmaiexpatsclub/1101241)
 
 ### Why Plan, Why Now?
 
