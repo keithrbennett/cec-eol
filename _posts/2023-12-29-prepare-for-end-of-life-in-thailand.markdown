@@ -5,8 +5,9 @@ date:   2023-12-29 15:36:10 +0700
 categories: 
 ---
 
-### Chiang Mai Expats Club
-
+Chiang Mai Expats Club and Lifelong Learning Payap present a four part series with the objective to provide the knowledge 
+and information you need to leave this world with dignity, on your own terms, and to provide 
+for your loved ones in the manner you desire.
 ### Key Information
 
 * Dates:
@@ -16,9 +17,9 @@ categories:
 
 [To **buy tickets**, click here.](https://buytickets.at/chaingmaiexpatsclub/1101241)
 
-[To see the course outline, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-course-outline.pdf)
+[To see the detailed course outline, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-course-outline.pdf)
 
-[To see the flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
+[To see the program flyer, click here.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-flyer.pdf)
 
 ### Why Plan, Why Now?
 
