@@ -30,20 +30,21 @@ Tickets for the Prepare for End of Life in Thailand series may be purchased sepa
 ### Why Plan, Why Now?
 
 There are several reasons why people have not created their own comprehensive plan.
-We have put together a top 10 list of those reasons take a look and see if any of them
-apply to you, and then check out our suggestions by clicking on the ones below
-that apply to you.
+We have put together a top 10 list of those reasons. Take a look and see if any of them
+apply to you, and then check out our suggestions...
 
-* [1) It's not something I want to think about.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-01.html)
-* [2) I don't know where to start.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-02.html)
-* [3) I already have a will, and another country.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-03.html)
-* [4) It doesn't matter I'll be gone.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-04.html)
-* [5) I'll get around to it later.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-05.html)
-* [6) It's expensive.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-06.html)
-* [7) I don't own enough that it would matter.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-07.html)
-* [8) It's complicated and I don't know who I can trust.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-08.html)
-* [9) I live by myself and don't have anyone to leave possessions to.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-09.html)
-* [10) I'm going to live forever.](/markdown/2023-12-29-prepare-for-end-of-life-in-thailand/reason-10.html)
+* 1) It's not something I want to think about.
+* 2) I don't know where to start.
+* 3) I already have a will, and another country.
+* 4) It doesn't matter I'll be gone.
+* 5) I'll get around to it later.
+* 6) It's expensive.
+* 7) I don't own enough that it would matter.
+* 8) It's complicated and I don't know who I can trust.
+* 9) I live by myself and don't have anyone to leave possessions to.
+* 10) I'm going to live forever.
+
+[Click here to see our suggestions to address each of these reasons.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-top-ten.pdf)
 
 ### Contact Us
 
