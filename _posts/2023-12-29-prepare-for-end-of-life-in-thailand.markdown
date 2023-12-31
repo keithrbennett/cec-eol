@@ -33,16 +33,16 @@ There are several reasons why people have not created their own comprehensive pl
 We have put together a top 10 list of those reasons. Take a look and see if any of them
 apply to you, and then check out our suggestions...
 
-* 1) It's not something I want to think about.
-* 2) I don't know where to start.
-* 3) I already have a will, and another country.
-* 4) It doesn't matter I'll be gone.
-* 5) I'll get around to it later.
-* 6) It's expensive.
-* 7) I don't own enough that it would matter.
-* 8) It's complicated and I don't know who I can trust.
-* 9) I live by myself and don't have anyone to leave possessions to.
-* 10) I'm going to live forever.
+1. It's not something I want to think about.
+1. I don't know where to start.
+1. I already have a will, and another country.
+1. It doesn't matter I'll be gone.
+1. I'll get around to it later.
+1. It's expensive.
+1. I don't own enough that it would matter.
+1. It's complicated and I don't know who I can trust.
+1. I live by myself and don't have anyone to leave possessions to.
+1. I'm going to live forever.
 
 [Click here to see our suggestions to address each of these reasons.](/assets/2023-12-29-prepare-for-end-of-life-in-thailand/cec-eol-top-ten.pdf)
 
