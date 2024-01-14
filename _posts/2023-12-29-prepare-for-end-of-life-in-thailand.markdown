@@ -13,7 +13,9 @@ for your loved ones in the manner you desire.
 
 * **Dates**: Tuesdays, February 6, 13, 20, 27, 2024
 * **Time**: 10:30 AM to Noon
-* **Location**: Payap Lifelong Learning Center ([click here for map link](https://maps.app.goo.gl/iwbrUivFd7bLZg9H6)) - due to the enthusiastic response and high volume of ticket requests, we are considering relocating the event to accommodate a larger audience. We will promptly inform you of any changes to the venue. Thank you for your understanding.
+* **Location**: Payap Lifelong Learning Center, William J. Yoder Seminar Room, Ground Floor, McGilvary College of Divinity ([click here for map link](https://maps.app.goo.gl/rEF6RuZv4mQcboz67)).
+  (Please use the entrance opposite of McCormick hospital.)
+
 
 ### Tickets
 
