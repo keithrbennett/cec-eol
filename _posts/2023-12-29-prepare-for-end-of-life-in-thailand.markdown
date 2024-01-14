@@ -14,7 +14,7 @@ for your loved ones in the manner you desire.
 * **Dates**: Tuesdays, February 6, 13, 20, 27, 2024
 * **Time**: 10:30 AM to Noon
 * **Location**: Payap University (Kaew Nawarat Campus), McGilvary College of Divinity, Ground Floor, William J. Yoder Seminar Room ([click here for map link](https://maps.app.goo.gl/rEF6RuZv4mQcboz67)).
-  (Please enter the campus at the entrance opposite of McCormick hospital.)
+  (Please enter the campus at the entrance opposite McCormick hospital.)
 
 
 ### Tickets
